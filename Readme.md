@@ -124,7 +124,7 @@ Criterios antes de marcar una tarea como "Terminada":
 **Dody Salim Dueñas Remache**
 
 - 📧 Email: [Contacto disponible]
-- 💼 LinkedIn: [linkedin.com/in/dody-dueñas-079164296](https://www.linkedin.com/in/dody-due%C3%b1as-079164296/)
+- 💼 LinkedIn: [linkedin.com/in/dody-dueñas-079164296](https://www.linkedin.com/in/dody-dueñas-079164296/)
 - 📱 Teléfono: +593 982744895
 
 ## 📚 Contexto Académico
